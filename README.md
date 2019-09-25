@@ -1,0 +1,1 @@
+# geolabis-finaluri-proekti
